@@ -10,7 +10,7 @@
 
 - Email: [AbdallahKhalifa.eng@gmail.com](mailto:AbdallahKhalifa.eng@gmail.com)
 - FaceBook: [Abdallah.Emad.eng](https://www.facebook.com/Abdallah.Emad.eng)
-- Twitter: [AbdallahEmadEng](https://twitter.com/AbdallahEmadEng)
+- X: [AbdallahEmadEng](https://twitter.com/AbdallahEmadEng)
 
 
 ---
